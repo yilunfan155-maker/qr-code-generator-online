@@ -17,6 +17,10 @@ Udh毛zues p毛r QR Code Generator Online. Mini-Tools provides this browser-base
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, falas online QR code generator, falas online online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 Mos futni t毛 dh毛na private, t毛 ndjeshme ose konfidenciale pa kuptuar p毛rpunimin.

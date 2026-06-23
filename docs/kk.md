@@ -17,6 +17,10 @@
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, 褌械谐褨薪 芯薪谢邪泄薪 QR code generator, 褌械谐褨薪 芯薪谢邪泄薪 online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 莹遥写械褍 褌訖褋褨谢褨薪 褌爷褋褨薪斜械泄 卸械泻械, 褋械蟹褨屑褌邪谢 薪械屑械褋械 覜冶锌懈褟 写械褉械泻褌械褉写褨 械薪谐褨蟹斜械遥褨蟹.

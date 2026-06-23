@@ -17,6 +17,10 @@ H瓢峄沶g d岷玭 cho QR Code Generator Online. Mini-Tools provides this brows
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, mi峄卬 ph铆 tr峄眂 tuy岷縩 QR code generator, mi峄卬 ph铆 tr峄眂 tuy岷縩 online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 Kh么ng nh岷璸 d峄?li峄噓 ri锚ng t瓢, nh岷 c岷 ho岷穋 b铆 m岷璽 n岷縰 ch瓢a hi峄僽 c谩ch x峄?l媒.

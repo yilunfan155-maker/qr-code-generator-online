@@ -17,6 +17,10 @@ Panduan untuk QR Code Generator Online. Mini-Tools provides this browser-based t
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, percuma dalam talian QR code generator, percuma dalam talian online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 Jangan masukkan data peribadi, sensitif atau sulit tanpa memahami pemprosesannya.

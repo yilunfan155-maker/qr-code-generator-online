@@ -17,6 +17,10 @@ Opas: QR Code Generator Online. Mini-Tools provides this browser-based tool at:
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, ilmainen online QR code generator, ilmainen online online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 脛l盲 sy枚t盲 yksityisi盲, arkaluonteisia tai luottamuksellisia tietoja ymm盲rt盲m盲tt盲 k盲sittely盲.

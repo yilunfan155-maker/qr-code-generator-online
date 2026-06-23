@@ -17,6 +17,10 @@
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, 未蠅蟻蔚维谓 online QR code generator, 未蠅蟻蔚维谓 online online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 螠畏谓 蔚喂蟽维纬蔚蟿蔚 喂未喂蠅蟿喂魏维, 蔚蠀伪委蟽胃畏蟿伪 萎 蔚渭蟺喂蟽蟿蔚蠀蟿喂魏维 未蔚未慰渭苇谓伪 蠂蠅蟻委蟼 谓伪 魏伪蟿伪谓慰蔚委蟿蔚 蟿畏谓 蔚蟺蔚尉蔚蟻纬伪蟽委伪.

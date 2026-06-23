@@ -17,6 +17,10 @@ Veiledning for QR Code Generator Online. Mini-Tools provides this browser-based 
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, gratis online QR code generator, gratis online online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 Ikke skriv inn private, sensitive eller konfidensielle data uten 氓 forst氓 hvordan de behandles.

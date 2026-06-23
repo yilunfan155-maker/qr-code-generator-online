@@ -17,6 +17,10 @@
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, 讞讬谞诐 讗讜谞诇讬讬谉 QR code generator, 讞讬谞诐 讗讜谞诇讬讬谉 online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 讗诇 转讝讬谉 谞转讜谞讬诐 驻专讟讬讬诐, 专讙讬砖讬诐 讗讜 讞住讜讬讬诐 讘诇讬 诇讛讘讬谉 讻讬爪讚 讛诐 诪注讜讘讚讬诐.

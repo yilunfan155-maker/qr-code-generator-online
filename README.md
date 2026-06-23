@@ -16,6 +16,10 @@ This repository contains 50+ localized Markdown pages for this Mini-Tools featur
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code
 
+## Long-tail Keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Safety Note
 
 Do not paste private, sensitive, or confidential data into public online tools unless you understand how the tool works and what data is processed.

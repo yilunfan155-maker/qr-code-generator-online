@@ -17,6 +17,10 @@ K谋lavuz: QR Code Generator Online. Mini-Tools provides this browser-based tool
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, 眉cretsiz online QR code generator, 眉cretsiz online online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 Nas谋l i艧lendi臒ini anlamadan 枚zel, hassas veya gizli veri girmeyin.

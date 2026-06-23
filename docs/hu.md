@@ -17,6 +17,10 @@
 
 QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, ingyenes online QR code generator, ingyenes online online tool, Mini-Tools QR code generator
 
+## Long-tail keywords
+
+create QR code for website link, generate Wi-Fi QR code online, make vCard QR code for contact sharing, free QR code generator without signup, download QR code image, create email QR code, make QR code for business card, generate QR code for URL
+
 ## Note
 
 Ne adjon meg priv谩t, 茅rz茅keny vagy bizalmas adatokat a feldolgoz谩s meg茅rt茅se n茅lk眉l.
