@@ -1,0 +1,22 @@
+# Bezplatn媒 online n谩stroj: QR Code Generator Online
+
+Pr暖vodce pro QR Code Generator Online. Mini-Tools provides this browser-based tool at:
+
+- Tool: https://mini-tools.uk/qr
+- Output / result: QR codes for URL, Wi-Fi, vCard, email, text, and contact sharing
+- Main use cases: create QR codes, share links, encode Wi-Fi details, generate contact QR codes, download QR images
+
+## How to use
+
+1. Open https://mini-tools.uk/qr
+2. Use the tool in your browser.
+3. Copy or download the result when the page provides an output.
+4. Use the result in documents, README files, websites, posts, support tickets, or daily work.
+
+## Souvisej铆c铆 hled谩n铆
+
+QR code generator, free QR code, URL QR code, Wi-Fi QR code, vCard QR code, email QR code, zdarma online QR code generator, zdarma online online tool, Mini-Tools QR code generator
+
+## Note
+
+Nezad谩vejte soukrom谩, citliv谩 ani d暖v臎rn谩 data bez pochopen铆 zpracov谩n铆.
